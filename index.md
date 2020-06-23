@@ -10,3 +10,5 @@ She longs to attend a prestigious college in "a City with culture" somewhere on 
 
 >It's not important to be right.
 >It's only important to be true.
+
+<img src="https://images.app.goo.gl/MjMiLAohAkrADemLA"/>
