@@ -7,3 +7,6 @@ She longs to attend a prestigious college in "a City with culture" somewhere on 
 * she has a crush on classmate Danny O'Neill
 * takes a job at a coffee shop
 * is attending a theater program
+
+>It's not important to be right.
+>It's only important to be true.
